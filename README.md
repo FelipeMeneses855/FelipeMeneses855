@@ -12,4 +12,6 @@ Meu nome é Felipe Gomes de Meneses
 
 00001129844274sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/bW5d5.gif)
+## PRIMEIRA VEZ MEXENDO NISSO 
+
+![](https://tenor.com/pt-BR/view/corinthians-libertadores-yuri-alberto-david-luiz-flamengo-gif)
