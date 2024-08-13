@@ -12,4 +12,4 @@ Meu nome é Felipe Gomes de Meneses
 
 00001129844274sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/corinthians-yuri-alberto-libertadores-flamengo-david-luiz-gif-26435431)
+![](https://tenor.com/bW5d5.gif)
